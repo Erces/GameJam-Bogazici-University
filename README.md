@@ -1,4 +1,4 @@
-Boğaziçi Game Jam 5. Sıralama
+Boğaziçi Game Jam 5-10 Sıralama
 
 **Be Good, Live Short**
 
